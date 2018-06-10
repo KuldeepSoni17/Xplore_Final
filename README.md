@@ -42,8 +42,6 @@ For more info:- contact via mail - kuldeepsoni437@gmail.com
 
 ![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(2).png)
 
-![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(3).png)
-
 ![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(4).png)
 
 ![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(5).png)
@@ -51,8 +49,6 @@ For more info:- contact via mail - kuldeepsoni437@gmail.com
 ![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(6).png)
 
 ![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(7).png)
-
-![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(8).png)
 
 ![alt text](https://github.com/KuldeepSoni17/Xplore_Final/blob/master/Screenshot%20(9).png)
 
